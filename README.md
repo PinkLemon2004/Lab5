@@ -1,44 +1,38 @@
-เครื่องคิดเลขเครื่องคิดใจ
-🍑🍑🍑🍑🍑🍑🍑🍑🍑🍭🍭🍭🍭🍭🍭🍧🍧🍧🍧
-I've been in the shadows
-The waters deep yet shallow
-But you were there
-And everything was beautiful
-So precious as can be
-Like everybody else
-Then I felt you closer
-Then it all got better
-You took me there
-Everything is lovely here
-And just maybe I'm?in love
-Can I fall in love again?
-Maybe you're the one I needed
-To take it all away
-This pain
-Can you fall in love with me?
-And tell me that you'll care for me
-So when I close my eyes
-Will you be there?
-To let me know that all will be okay
-Can I fall in love again?
-This way
-With you
-Lie...
-I think I've been dreaming
-Of the never-ending
-I know for sure
-Maybe this is our part?
-Maybe this could be a start?
-Can I fall in love again?
-Maybe you're the one I needed
-To take it all away
-This pain
-Can you fall in love with me?
-And tell me that you'll care for me
-So when I close my eyes
-Will you be there?
-To let me know that all will be okay
-Can I fall in love again?
-This way
-With you
-Lie... Lala lie
+เครื่องคิดเลขเครื่องคิดใจ🍭🍑💠💠💠💠💠💠💠💠💠💠💠🔰🦪
+************************************
+Missed Calls Lyrics:
+
+Verse 1:
+บังเอิญมองไปที่เดิมตรงนั้น
+ที่ฉันและเธอเคยอยู่ด้วยกัน
+ทำให้คิดถึงวันเหล่านั้น
+อยู่ดีๆ ก็เหงากว่าทุกวัน
+ฉันก็เลยไม่รู้ทำไม
+ถึงได้อยากลองโทรไปถามเพราะอยากจะรู้
+
+Hook:
+คิดถึงกันบ้างไหม
+ตอนนี้เป็นยังไงสบายดีหรือเปล่า
+เธอลืมฉันคนนี้ไปแล้วหรือยัง
+ทำได้แค่พูดตอนรอสาย
+เพราะหัวใจรู้ดีว่ายังไงเธอก็ไม่ตอบ
+ปล่อยให้ฉันเพ้อไปอย่างนี้คนเดียวก็พอ
+
+Verse 2:
+ตอนกลางคืนมันทำให้เราเหงา
+ความเดียวดายนี่มันช่างว่างเปล่า
+ภาพเธอลอยขึ้นมาเวลาเหงา
+เธอเคยคิดแบบฉันบ้างหรือเปล่า
+ทำไมต้องคิดถึง when I get high
+ทำไมคืนที่เหงาฉันคิดถึงเธออีกแล้ว
+ที่โทรไปก็รู้ว่าเธอก็คงไม่รับหรอก 
+เพราะถ้าเธอรับสายขึ้นมา
+ฉันเองก็คงไม่กล้าที่จะถาม เธอ
+
+Hook 2:
+คิดถึงฉันบ้างไหม
+ตอนนี้เป็นยังไง สบายดีหรือเปล่า
+เธอลืมฉันคนนี้ไปแล้วหรือยัง
+ทำได้แค่พูดตอนรอสาย
+เพราะหัวใจรู้ดีว่าเธอยังไงก็ไม่รับ
+ปล่อยให้ฉันเพ้อไปอย่างนี้คนเดียวก็พอ
