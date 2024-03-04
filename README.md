@@ -1,4 +1,4 @@
-เครืองคิดเลขเครื่องคิดใจ
+เครื่องคิดเลขเครื่องคิดใจ
 🍑🍑🍑🍑🍑🍑🍑🍑🍑🍭🍭🍭🍭🍭🍭🍧🍧🍧🍧
 I've been in the shadows
 The waters deep yet shallow
